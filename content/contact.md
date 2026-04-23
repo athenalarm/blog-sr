@@ -36,4 +36,10 @@ Budite u toku sa našim najnovijim inovacijama u oblasti sigurnosti, studijama s
 
 ---
 
+### 🛡️ Globalni uvidi u bezbednost
+
+**Athenalarm je profesionalni proizvođač koji deli stručne uvide o proizvodima i sistemima protivprovalnih alarma.** Kao deo naše posvećenosti globalnoj bezbednosnoj zajednici, pružamo lokalizovanu ekspertizu na 71 jeziku. Istražite našu bazu znanja za Evropu, Afriku, Aziju, Ameriku i Okeaniju [**ovde**](https://athenalarm.com/burglar-alarm-manufacturer/athenalarm-global-blogs/).
+
+---
+
 > _Athenalarm — Profesionalni proizvođač protivprovalnih alarma i rešenja za mrežno praćenje alarma._
